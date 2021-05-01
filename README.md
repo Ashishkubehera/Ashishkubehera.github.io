@@ -1,2 +1,2 @@
 # Ashishkubehera.github.io
-A unique way of prewsenting yourself.
+A unique way of presenting yourself.
